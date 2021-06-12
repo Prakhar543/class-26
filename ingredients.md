@@ -1,0 +1,5 @@
+-1 tablespoon sugar
+-half a cup milk
+-half a cup water
+-ginger
+-half tablespoon tea leaves
